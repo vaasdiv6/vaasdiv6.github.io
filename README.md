@@ -1,0 +1,1 @@
+# vaasdiv6.github.io
